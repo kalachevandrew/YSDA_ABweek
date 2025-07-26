@@ -1,6 +1,7 @@
 **A/B Week — новый онлайн-интенсив ШАД.** 
 
 Видео:
+
 Лекция 1: https://www.youtube.com/live/g_RtImQ6nWg
 
 Лекция 2: https://www.youtube.com/live/WRG1S80QKTg
