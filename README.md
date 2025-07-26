@@ -2,9 +2,13 @@
 
 Видео:
 Лекция 1: https://www.youtube.com/live/g_RtImQ6nWg
+
 Лекция 2: https://www.youtube.com/live/WRG1S80QKTg
+
 Лекция 3: https://www.youtube.com/live/dVlN9c-xMZE
+
 Лекция 4: https://www.youtube.com/live/GTw0LOul5pc
+
 Лекция 5: https://www.youtube.com/live/aE8dH2Wusds
 
 
